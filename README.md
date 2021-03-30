@@ -1,1 +1,1 @@
-# hell-world
+# hell-world I am a director for the scientific metrology at National Metrology Institute of Ethiopia (NMIE).I worked at NMIE for the last fifteen years as metrologist, team leader, quality manager and director.
